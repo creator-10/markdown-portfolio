@@ -1,1 +1,0 @@
-[WizardWorld](https://wizardworld.com)
